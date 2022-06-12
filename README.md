@@ -1,6 +1,6 @@
-# regav52
-- Gracz gier
-- jupiter
-- słaby programista
-- nie lubie memów 21 wieku (kracc bacc, itp.)
-- minecraft ign: regav62
+# regav62
+minecraft ign: regav62
+bad programmer
+music producer
+gamer
+bad piggie :suspig:
